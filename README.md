@@ -1,3 +1,1 @@
-🚱
-
-Occasionally I decide making a game engine would be fun so I do that for like a week
+I am in fact, despite the impression made by my profile picture, not Thom Yorke
